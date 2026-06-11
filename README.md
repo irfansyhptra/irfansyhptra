@@ -1,4 +1,4 @@
-# <div align="center">⚡ IRFAN SYAHPUTRA ⚡</div>
+# <div align="center">IRFAN SYAHPUTRA</div>
 
 <div align="center">
 
